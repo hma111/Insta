@@ -1,4 +1,4 @@
-<<h1>["fabu_azhar_"] Instagram verified badge generator</h1>
+<<h1>["_abu_azhar_"] Instagram verified badge generator</h1>
 Based on Instagram, after their gathering reviews your application, you'll get a reply in your admonitions tab. As a result of chronicled and persistent problems with pranksters, Instagram is obvious that they will not at any point email you, demand cash, or regardless interface.Inside a coupl of days or 7 days, you'll get a quick yes or no. No analysis or explanation. Consequently, without a doubt, anyone can apply for keep an eye on Instagram. Regardless, truly getting insisted is essentially harder.
 <p>
 <B>
